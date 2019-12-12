@@ -24,4 +24,4 @@ I'm interested in computer science like everybody else who are in business. I tr
 I'm very interested in sportfishing. I like to go fishing when I'm on holiday, especially
 on my summerholiday. I have summercottage where I can fish almost every time I want. And of course when I am having holiday abroad, I like to go fishing at least one time.
 
-[lisää tietoa](diary-017.md)
+[More information](diary-017.md)
