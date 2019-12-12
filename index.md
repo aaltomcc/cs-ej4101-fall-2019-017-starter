@@ -1,4 +1,4 @@
-# Something About from myself
+# Something About Myself
 
 ## **Chapter 1**
 This writing is a fiction story about a person who does not exists. I will write all kind of 'facts' from person who does not exists in real life.
@@ -6,7 +6,7 @@ This writing is a fiction story about a person who does not exists. I will write
 
 ## Chapter 2
 ### Current occupation
-I will say that I'm working on big global enterprise which  is almost aa leader in its area (?). I'm a small part of it.
+I will say that I'm working on big global enterprise which  is almost global leader in its area (?). I'm a small part of it.
 
 
 ## Chapter 3
@@ -22,6 +22,6 @@ I'm interested in computer science like everybody else who are in business. I tr
 ## Chapter 5
 ### General interest related to hobbies
 I'm very interested in sportfishing. I like to go fishing when I'm on holiday, especially
-on my summerholiday. I have summercottage where I can fish almost every time I want. And of course when I am having holiday abroad, I like to go fishing at least one time .
+on my summerholiday. I have summercottage where I can fish almost every time I want. And of course when I am having holiday abroad, I like to go fishing at least one time.
 
 [lisää tietoa](diary-017.md)
