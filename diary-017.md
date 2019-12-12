@@ -17,4 +17,4 @@ After all, I have learned quite a much. For example, the basics of GitHub and ho
 
 
 ## Chapter 5, Least challenging part of this course
-After all, when I managed to install GitHub related things properly and learn how to use it right, after that it was interesting to see how it really works. To write Markdown language was nice and easy.
+After all, when I managed to install GitHub related things properly and learn how to use it right, after that it was interesting to see how it really works. To write Markdown language was nice and easy and relaxing.
