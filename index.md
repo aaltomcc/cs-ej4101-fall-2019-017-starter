@@ -26,6 +26,5 @@ on my summerholiday. I have summercottage where I can fish almost every time I w
 
 [More information](diary-017.md)
 
-https://clkde.tradedoubler.com/click?p=264311&a=3045532&g=24328740&epi=search_icehockey&url=https://stock.adobe.com/images/hockey-players-starts-game-around-ice-arena/271249032?as_channel=affiliate&as_campaign=pexels&as_source=arvato
-
+![image]https://pixabay.com/go/?t=image-list-nohits-shutterstock&id=1022262199
 
