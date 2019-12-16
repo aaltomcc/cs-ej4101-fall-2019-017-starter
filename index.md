@@ -28,5 +28,5 @@ on my summerholiday. I have summercottage where I can fish almost every time I w
 
 #### Alla kuva harrastuksestani
 
-![](pixabay.com/go/?t=image-list-nohits-shutterstock&id=1022262199)
+![Picture](pixabay.com/go/?t=image-list-nohits-shutterstock&id=1022262199)
 
