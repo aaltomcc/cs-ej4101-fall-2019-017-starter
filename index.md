@@ -27,7 +27,7 @@ on my summerholiday. I have summercottage where I can fish almost every time I w
 [More information](diary-017.md)
 
 #### Below you can see a picture which describes one of my hobbies:
-##
+
 
 ![Puck](https://image.shutterstock.com/image-photo/black-rubber-hockey-puck-place-600w-1022262199.jpg)
 
