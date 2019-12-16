@@ -26,7 +26,7 @@ on my summerholiday. I have summercottage where I can fish almost every time I w
 
 [More information](diary-017.md)
 
-#### Below you can see a picture which describes one of my hobbies:
+#### Below you can see a picture which shows one of my favourite hobby:
 
 
 
