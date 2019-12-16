@@ -29,5 +29,5 @@ on my summerholiday. I have summercottage where I can fish almost every time I w
 #### Alla kuva harrastuksestani
 
 ![Picture][logo]
-[logo] https://https://image.shutterstock.com/image-photo/black-rubber-hockey-puck-place-600w-1022262199.jpg)
+[logo] https://image.shutterstock.com/image-photo/black-rubber-hockey-puck-place-600w-1022262199.jpg)
 
