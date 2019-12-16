@@ -26,7 +26,7 @@ on my summerholiday. I have summercottage where I can fish almost every time I w
 
 [More information](diary-017.md)
 
-## Alla kuva harrastuksestani
+#### Alla kuva harrastuksestani
 
-![]https://pixabay.com/go/?t=image-list-nohits-shutterstock&id=1022262199
+![]( pixabay.com/go/?t=image-list-nohits-shutterstock&id=1022262199)
 
